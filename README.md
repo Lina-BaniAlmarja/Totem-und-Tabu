@@ -1,57 +1,66 @@
 # Totem-und-Tabu
 
-Auf der sexuelle Ebene, 
+Auf der sexuellen Ebene
 
-Totem ist ein Vorläufer des familiären sexuellen Verbotes, 
+ist ein Totem ein Vorläufer des familiären sexuellen Verbotes, 
 
-anderes beschrieben, Menschheit war noch strenger als heute.
-
-
-
-Unter der Beherrschung der Polyamorie bei den alten australischen Clans, 
-
-würde der Vermeid des Inzestes diffizil und unrealistisch. 
-
-Da Totem ein strenges Verbot jedes sexuellen Kontakts mit der ganzen Totem Völkchen Mitgliedern garantiert, 
-
-war es umsetzbarer Inzest zu verbieten.
+anders beschrieben, die Menschheit war damals/mal noch strenger als heute.
 
 
 
-Entlang der Reise ,um die Periode (Trieb-Tabu) in der Regel zu legen, 
+Unter der Herrschaft der Polyamorie bei den alten australischen Clans
+
+war die Vermeidung des Inzests diffizil und unrealistisch. 
+
+Da ein Totem ein strenges Verbot jedes sexuellen Kontakts mit allen Mitgliedern des Totem-Völkchens garantiert, 
+
+war es umsetzbarer, Inzest zu verbieten.
+
+
+
+Entlang der Reise, um die Periode (Trieb-Tabu) in der Regel zu legen, 
 
 im Gegenteil von der Glaubenweise, dass die Triebe die Schöpfungen der Tabus sind, 
 
 Freuds Sichtweise war, Trieb kommt vor, ihm folgt das Verbot.
+--> Satz verstehe ich gar nicht, vllt erstmal simplere schreiben?
 
 
-Das finde ich einen schlauen logischen Ausgang des Periode, 
 
-solange das Verbot (Tabu) auch als Trieb gesehen könnte.
+Das finde ich einen schlauen und logischen Ausgang der ?Periode? (Überlegung), 
+
+solange das Verbot (Tabu) auch als Trieb gesehen werden kann.
+
 
 
 Nehmen wir an, dass Trieb vorkommt, danach verbietet die Autorität des Clans diesen Trieb, 
 
-am meisten Fällen, um bestimmte Rechte zu schützen. 
+in den meisten Fällen, um bestimmte Rechte zu schützen. 
 
-Frauen, Kinder und Totem sind geschützt, wegen irgendeine evolutionären Gründen die ich nun nicht eingehen möchte,
 
-da sehe ich eigentlich eine Brücke zu Adler Machtstreben.
+
+Frauen, Kinder und Totem sind geschützt, aufgrund irgendeines evolutionären Grundes, auf den ich hier nicht eingehen möchte,
+
+da ich eigentlich eine Brücke zu Adler Machtstreben sehe. --> verstehe ich auch nicht
 
 Antun der Schwächen Mitgliedern bedroht am End Effekt die Macht der Autorität.
+-> Wenn man den schwächsten Mitgliedern etwas antut, bedroht das am Ende die Macht der Autorität.
 
 
 
-Wie die (Ei-Hühner) Periode nicht bei einem von denen aufhört, hört auch die Periode (Trieb-Tabu) nicht mit (Tabu) auf, 
+Wie die (Ei-Hühner) Periode nicht bei einem von beiden aufhört, hört auch die Periode (Trieb-Tabu) nicht mit (Tabu) auf, 
 
-des Tabu folgt der Trieb.
+auf das Tabu folgt der Trieb.
 
-Töten (Trieb), dem folgt Tötenverbot (Tabu), dem folgt Katharsis (Trieb). 
+Töten (Trieb) folgt Tötenverbot (Tabu) und diesem folgt Katharsis (Trieb). 
 
-Viele Australien und afrikanischen Stammen reinigen sich nach töten mit strengen Ritualen, 
+Viele australische und afrikanische Stämme reinigen sich nach dem Töten mit strengen Ritualen, 
 
-manchmal erreichen diese Verfahren unerträgliche Niveaus, 
+manchmal erreichen diese Verfahren unerträgliche Ausmaße, 
 
-wie ein Selbsternährungsverbot (wieder ein Tabu), 
+wie ein Selbsternährungsverbot (wieder ein Tabu) oder
 
-außerdem das Verehren der Leichen der Feinden, und ihren abgehackten Köpfe monatelang mit prächtigem Essen bedienen . 
+das Verehren der Leichen der Feinde, sowie monatelang ihren abgehackten Köpfen prächtiges Essen zu servieren. 
+
+
+-> Versuch, erstmal kürzere Sätze zu schreiben, die Verschachtelung kommt später.
